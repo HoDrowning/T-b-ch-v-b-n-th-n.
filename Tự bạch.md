@@ -1,5 +1,5 @@
-# T-b-ch-v-b-n-th-n.
-giới thiệu về bản thân tôi "ĐẶNG TRUNG HẬU"
+# Giới thiệu đôi chút.
+Giới thiệu về bản thân tôi "ĐẶNG TRUNG HẬU"
 Họ và tên: Đặng Trung Hậu
 Sinh ngày: 18-07-1993
 Số điện thoại: 0982219643
